@@ -1,6 +1,6 @@
 - 👋 Hi there !! Congrats you found developer + innovator ! 
 - 👀 Take a glance at my work - Crispicy.com
-- 🌱 I am in search for some developers who can help my initiative to grow.
+- 🌱 Keep learning & growing.
 - 💞️ Spread Love Love Love !!
 - 📫 Email me at satyamraj80@gmail.com
 
