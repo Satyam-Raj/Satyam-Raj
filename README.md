@@ -1,5 +1,5 @@
 - 👋 Hi there !! Congrats you found developer + innovator ! 
-- 👀 Take a glance at my work - Crispicy.com
+- 👀 Take a glance at my work - dipeat.com
 - 🌱 Keep learning & growing.
 - 💞️ Spread Love Love Love !!
 - 📫 Email me at satyamraj80@gmail.com
